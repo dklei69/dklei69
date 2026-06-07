@@ -8,7 +8,7 @@
 
 🚀 Space exploration enthusiast. Philosophy lover. Builder of things that actually work.
 
-🌱 Always learning — and not afraid to start over at 56.
+🌱 Always learning and not afraid to start over at 56.
 
 
 <!---
